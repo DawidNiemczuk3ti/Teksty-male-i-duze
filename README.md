@@ -1,1 +1,0 @@
-# Teksty-ma-e-i-du-e
